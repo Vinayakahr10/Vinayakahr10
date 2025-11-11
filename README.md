@@ -1,5 +1,5 @@
 # 💫 About Me:
-- 👋 Hi, I’m @Vinayakahr10<br>- 👀 I’m interested in Physics and Electronics<br>- 🌱 I’m currently learning 1 year BE in Electronics and Communication Engineering<br>- 💞️ I’m looking to collaborate on ...<br>- 📫 How to reach me vinayakahr10@gmail.com || www.electronicswithvk.netlify.app<br>- 😄 Pronouns: ...<br>- ⚡ Fun fact: ...
+- 👋 Hi, I’m @Vinayakahr10<br>- 👀 I’m interested in Physics and Electronics<br>- 🌱 I’m currently learning 2 year BE in Electronics and Communication Engineering<br>- 💞️ I’m looking to collaborate on ...<br>- 📫 How to reach me vinayakahr10@gmail.com || www.electronicswithvk.netlify.app<br>- 😄 Pronouns: ...<br>- ⚡ Fun fact: ...
 
 
 ## 🌐 Socials:
